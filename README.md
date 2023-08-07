@@ -8,7 +8,7 @@ Pokud máte nějaké otázky, nápady nebo chcete spolupracovat, neváhejte mě 
 
 ### 📫 Kontakt
 
-- :e_mail: Email: blobycz@gmail.com 
+- :envelope: Email: blobycz@gmail.com 
 - :robot: Discord: @blobycz
 
 ### 🌐 Webové stránky
