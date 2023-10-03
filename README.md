@@ -8,6 +8,7 @@ Pokud máte nějaké otázky, nápady nebo chcete spolupracovat, neváhejte mě 
 
 - :envelope: Email: blobycz@gmail.com 
 - :robot: Discord: @notbloby
+- 📸 Instagram: https://instagram.com/itbloby
 
 ### 🌐 Webové stránky
 
